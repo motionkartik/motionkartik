@@ -9,7 +9,7 @@
 
 - 🤝 and **Graphics Designing**
 
-- 👨‍💻 All of my projects are available at [https://www.imdb.com/name/nm1407215](https://www.imdb.com/name/nm1407215)
+- 👨‍💻 All of my projects are available at [https://www.imdb.com/name/nm1407215](https://m.imdb.com/name/nm14072156)
 
 - 💬 Ask me about **Filmmaking & Tech**
 
